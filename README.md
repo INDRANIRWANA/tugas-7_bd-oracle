@@ -26,3 +26,11 @@
 # pengajuan cuti
 
 ![image](https://user-images.githubusercontent.com/45527518/149372312-d60c639b-f3f9-4c3c-892e-20a3b31f4449.png)
+
+![image](https://user-images.githubusercontent.com/45527518/149372441-f37a7552-dac9-4bbd-8ec7-6512edceebab.png)
+
+![image](https://user-images.githubusercontent.com/45527518/149372497-f36bc174-52f1-438f-9665-308de0be4031.png)
+
+![image](https://user-images.githubusercontent.com/45527518/149372565-db800ad9-87e3-4916-b2f4-1ba0857ae240.png)
+
+
