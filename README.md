@@ -23,3 +23,6 @@
 
 ![image](https://user-images.githubusercontent.com/45527518/149366388-89cd2461-9d4a-4503-8f10-d1d5351ed3c2.png)
 
+# pengajuan cuti
+
+![image](https://user-images.githubusercontent.com/45527518/149372312-d60c639b-f3f9-4c3c-892e-20a3b31f4449.png)
