@@ -36,4 +36,9 @@
 
 ![image](https://user-images.githubusercontent.com/45527518/149372565-db800ad9-87e3-4916-b2f4-1ba0857ae240.png)
 
+# Laporan
+
+![image](https://user-images.githubusercontent.com/45527518/149543349-985ee2bb-3873-4c94-bdfa-1dfe8e640d92.png)
+
+
 
