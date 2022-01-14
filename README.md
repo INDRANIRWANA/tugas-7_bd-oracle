@@ -23,7 +23,10 @@
 
 ![image](https://user-images.githubusercontent.com/45527518/149366388-89cd2461-9d4a-4503-8f10-d1d5351ed3c2.png)
 
-# pengajuan cuti
+# (Transaksi)Pengajuan cuti
+![image](https://user-images.githubusercontent.com/45527518/149539724-f782cb82-452a-486d-8f61-32f2b301314c.png)
+
+![transaksi](https://user-images.githubusercontent.com/45527518/149540140-52639c1f-a4b4-422e-b8d6-34ad22d44576.JPG)
 
 ![image](https://user-images.githubusercontent.com/45527518/149372312-d60c639b-f3f9-4c3c-892e-20a3b31f4449.png)
 
